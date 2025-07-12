@@ -1,1 +1,4 @@
-![image](https://github.com/user-attachments/assets/be3f40f8-3be0-42f5-b66c-d11a1caf3491)
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/f428fe95-a28a-46a9-b1ef-1a9099a336f2" />
+
+
+i like my yaoi
