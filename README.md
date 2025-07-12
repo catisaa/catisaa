@@ -3,4 +3,4 @@
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀i like my yaoi
 
-[GUNS.LOL](guns.lol/catisaa)     [RENTRY](https://rentry.co/gableyuri)
+[GUNS.LOL](https://guns.lol/catisaa)     [RENTRY](https://rentry.co/gableyuri)
