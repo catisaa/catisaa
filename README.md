@@ -1,4 +1,3 @@
-[GUNS.LOL](https://guns.lol/catisaa)     [RENTRY](https://rentry.co/gableyuri)
-[ATABOOK](https://yurigable.atabook.org)
-[FAVS](https://yurigable.straw.page)
+<img width="720" height="517" alt="image" src="https://github.com/user-attachments/assets/6865c180-64a7-41dc-9d1a-55618be8dba0" />
 
+⠀ ⠀[guns](https://guns.lol/catisaa)⠀ ⠀ ⟡⠀ ⠀ [atabook](https://yurigable.atabook.org)⠀  ⠀ ⟡  ⠀ [rentry](https://rentry.co/gableyuri)
