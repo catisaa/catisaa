@@ -1,6 +1,7 @@
-⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀green name me
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/a622e2ff-eeb7-44cf-9002-6e1612590fac" />
+⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀
+<img width="500" height="500" alt="2e2ed1f1fc8d2026c0197a07126094d6-removebg-preview" src="https://github.com/user-attachments/assets/0c3bf6c6-4687-4d41-96fa-855e4f0f5c40" />
 
 
 
-⠀ ⠀[guns](https://guns.lol/catisaa)⠀ ⠀ ⠀ ⠀[atabook](https://yurigable.atabook.org)⠀  ⠀   ⠀ [rentry](https://rentry.co/gableyuri)
+
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀[𝘨𝘶𝘯𝘴.𝘭𝘰𝘭](https://guns.lol/catisaa)⠀ ⠀⁠♡ ⠀ ⠀[𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://yurigable.atabook.org)⠀  ⠀⁠♡   ⠀ [𝘳𝘦𝘯𝘵𝘳𝘺](https://rentry.co/gableyuri)
