@@ -1,5 +1,6 @@
 ⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀
-[![IMG-6474.png](https://i.postimg.cc/BbrJ3dzR/IMG-6474.png)](https://postimg.cc/rRNBCYM9)
+<img width="584" height="427" alt="image" src="https://github.com/user-attachments/assets/0faa50c6-0565-4312-8ec6-b12c173f159d" />
+
 
 
 
