@@ -1,6 +1,7 @@
 
-⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶⠀⠀ ⠀⠀ ⠀
-<img width="584" height="427" alt="image" src="https://github.com/user-attachments/assets/0faa50c6-0565-4312-8ec6-b12c173f159d" />
+⠀ ⠀⠀ ⠀ read ext rentry i dont want u proshippers⠀⠀ ⠀⠀ ⠀
+<img width="508" height="491" alt="image" src="https://github.com/user-attachments/assets/556bf844-3a8f-4ba9-bc00-cfd07fd20abe" />
+
 
 
 
