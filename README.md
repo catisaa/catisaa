@@ -1,5 +1,5 @@
 
-⠀ ⠀⠀ ⠀ read ext rentry i dont want u proshippers⠀⠀ ⠀⠀ ⠀
+⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀
 <img width="508" height="491" alt="image" src="https://github.com/user-attachments/assets/556bf844-3a8f-4ba9-bc00-cfd07fd20abe" />
 
 
